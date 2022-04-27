@@ -1,0 +1,1 @@
+# Get-PeopleCert-IASSC-Lean-Six-Sigma---Yellow-Belt-18-Dumps
